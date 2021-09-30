@@ -1,5 +1,2 @@
 # sample_app
-test
-oooooooopppkkkkk
-hjjj
-dfsadddfgfdgsdsghf
+omae tomato kueya
