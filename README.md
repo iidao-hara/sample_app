@@ -1,2 +1,2 @@
 # sample_app
-omae tomato kueya kasu aho
+omae tomato kueya kasu ahodddd
